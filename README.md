@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **singh748830@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YtvkR36HDLgPfcJEK0639nTks-jyUWaE/view](https://drive.google.com/file/d/1YtvkR36HDLgPfcJEK0639nTks-jyUWaE/view)
+- 📄 Know about my experiences https://drive.google.com/file/d/1vKhHZLsgARcOGRJRv7RfKkyb6B4MARU4/view?usp=sharing
 <p align="left">
 </p>
 
